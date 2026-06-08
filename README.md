@@ -16,3 +16,5 @@
 [⸝⸝ gunslol ](https://guns.lol/humantorch)
 
 <small><div align="center">im the best homelander out there. trust me
+ 
+[fan-town](https://github.com/fan-town) officially pts biggest spiderman fan!!!! oh yeaa
