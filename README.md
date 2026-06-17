@@ -17,4 +17,4 @@
 
 <small><div align="center">im the best homelander out there. trust me
  
-[fan-town](https://github.com/fan-town) officially pts biggest spiderman fan!!!! oh yeaa
+[fan-town](https://github.com/fan-town) officially pts biggest spiderman fan and [title-town](https://github.com/title-town) officially pts johnny storm!
