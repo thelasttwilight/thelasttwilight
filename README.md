@@ -1,9 +1,11 @@
 
-<small><div align="center"><span style="font-size: 0.4em;">No one's going to love you the way that **I** do.</span>
+<small><div align="center"><span style="font-size: 0.4em;">The past doesn't go away. So you can either live with it forever, or you can do something about it.
+</span>
 
  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠 
- 
-<small><img width="855" height="598" alt="image" src="https://github.com/user-attachments/assets/ddc8d55d-2db0-41dc-8839-56be9fbff1bd" />
+
+<small><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/56333acd-1e0e-4d4f-bd8a-5adf03a6a9b1" />
+
 
 
  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠 
