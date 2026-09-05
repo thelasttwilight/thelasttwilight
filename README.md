@@ -17,6 +17,6 @@
 [.☘︎ ݁˖ atabook](https://cosmicblaze.atabook.org/)
 [⸝⸝ gunslol ](https://guns.lol/humantorch)
 
-<small><div align="center">im the best homelander out there. trust me
+<small><div align="center">im the best ~homelander~ out there. trust me
  
 officially pts biggest spiderman fan and officially pts johnny storm on [fan-town](https://github.com/fan-town) and [title-town](https://github.com/title-town)!
