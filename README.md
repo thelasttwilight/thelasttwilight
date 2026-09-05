@@ -1,5 +1,5 @@
 
-<small><div align="center"><span style="font-size: 0.4em;">The past doesn't go away. So you can either live with it forever, or you can do something about it.
+<small><div align="center"></span>The past doesn't go away. So you can either live with it forever, or you can do something about it.
 </span>
 
  󠀠󠀠󠀠 󠀠󠀠󠀠 󠀠󠀠󠀠 
@@ -19,4 +19,6 @@
 
 <small><div align="center">im the best ~homelander~ out there. trust me
  
-officially pts biggest spiderman fan and officially pts johnny storm on [fan-town](https://github.com/fan-town) and [title-town](https://github.com/title-town)!
+officially pts johnny storm / human torch on [title-town](https://github.com/title-town)!
+
+
